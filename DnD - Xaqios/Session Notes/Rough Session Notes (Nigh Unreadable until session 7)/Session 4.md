@@ -1,5 +1,5 @@
 
-portents for now - 5 and 11 
+portents for now:  5 and 11 
 gilbert has attuned ----------------------------------------- 
 gilbert conversation with ring the name is gabriel another one that book of yours, he wrote it --------------------------------------------------- 
 gilbert told us this he was apprentice before, sorted through books, picked up the book - 
