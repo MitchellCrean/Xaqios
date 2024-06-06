@@ -1,0 +1,61 @@
+- Feinren restrains people with web
+- Feinren uses laughter on Zora
+- Owl distracts
+- Gilbert uses humm of the spiral to heal Akarda
+- Rahkoriin uses dragon breath on 3 people
+- Transforms into werewolf - scales slowly shift and become hairy, fingers become even sharper as his face extends into a snout and transforms into a raging werewolf (not raging raging)
+- Tarlo crit hits guard attacking akarda, killing him
+- spectator turns to rah and deals 17 fucking necrotic damage
+- use portent on Zora again
+- use chromatic orb against spectator - 14 damage
+- owl distracts guard holding akarda
+- 2nd spectator paralyzes me and rah
+- missed some stuff
+- Tarlo kills guard 1
+- Spectator 1 looks at tarlo and gilbert, attacks them
+- As zora stands up and loses it, we see strands of web in her hair
+- Zora is raised off the ground within a pure eyeball of greeny black light that erupts from her chest
+- Spectator 2 eyes focus on Gilbert and Tarlo, tries but fails to confuse
+- Gilbert heals rahkoriin
+- rahkoriin kills guard 2
+- rahkoriin drinks potion
+- rahkoriin kills guard 4
+- Guards start chanting prayers to the eye
+- Akarda attacks guard behind him, picks up sword and shield and goes to attack the guard again, almost killing the guard
+- Guard 6 starts running away
+- Tarlo drinks potion, does 8 damage to guard 5
+- Spectator 1 looks at tarlo and feinren, we both pass, 11 damage each
+- Zora readies action, conjuring fire in hand and says, stop fighting now or you all die
+- i finally shrug off paralysis
+- spectator 2 targets rahkoriin and talro, 18 and 6, tarlo is now frightened, wait, has advantage against frightened, nevermind still fucking frightened
+- Gilbert tries to charm zora, she suceeds, and now fuckery ensues, or does it
+- Rahkoriin attacks spectator 1, 12 damage kills it
+- Zora casts fireball
+- akarda dives on tarlo and heals tarlo
+- Zora sends out the fireball, striking behind akarda, akrarda says i love you just before flames erupt, 29 fire damage, tarlo takes half
+- Akarda dies, legs burnt off, guard dies, chainmail melting into his skin as he screams out, and larry is temporarily dead
+- rahkoriin uses curse of the fallen puppet on fallen spectator, it attacks guard 3 with a bite, 5 damage
+- Guard 3 is shooketh, but still attacks rahkoriin
+- Guard 6 continues to run away
+- Tarlo attacks zora viciously, hits on second attack, does 3 damage
+- Zora looks at all of us "you should of given up when you had the chance", casts hold person on tarlo, but fails
+- use 2nd level chromatic orb, miss
+- spectator 2 targets Gilbert, he passes wisdom saving throw, roll again, 9, fails, gilbert is now confused
+- Gilbert randomly hits rahkoriin, rahkoriin goes down
+- Guard 3 attacks Tarlo, 4 damage
+- Tarlo attacks Zora again, hits on second attack, 3 damage
+- zora casts eldritch blast at Gilbert, nat 1, explodes on herself and is knocked prone
+- i cast chromatic orb right into zoras face, 16 fire damage
+- Gilbert stabilises Rahkoriin
+- Throughout the fight Gabriel has been spouting nonsense telling Gilbert to kill everyone, laughed when Gilbert got confused. Screamed at him when he stabilised Rahkoriin
+- Rahkoriin hits Zora, 9 damage, 8 damage (17)
+- Guard 3 runs away
+- Guard 6 runs out of the room
+- Tarlo hits zora twice, 6 damage, 3 damage (9)
+- Zora stands up and rips her blindfold off, every inch of her face is covered in eyes, glowing green, eyes almost like spider
+- "you will not beat me, i am chosen", claps hand together, rahkoriin and gilbert pass, tarlo and i do not
+- Zora dismisses the spectator, "please spare me"
+- Tarlo intimidates Zora, "please dont make me say, theyll get me", keeps muttering "please dont let them get me", "they offered me power and control, and i had it, the puppetless string..."
+- right as she says puppetless string the webbing bursts forth and wraps her in a cocoon, the cocoon drains Zora, killing her
+- loot zoras body, find some book with her writng
+- use wand of secrets, detect secret door

@@ -76,3 +76,37 @@
 	- information on outpost locations for the heretics, their chain of command, what the puppetless string is as a ruler and the names of the 3 main cities on the Gishin mainland
 - We leave Grudo just in time, with Tarlo collecting her eye symbol and Feinren leaving his
 - After passing the notes to her,we learn by Tarlo recognising the handwriting, that these notes were written by Zoral, furthermore Feinren reveals that Zora seems to be using some sort of magic on Rowan, mixture of divination and evocation
+
+
+## [[Session 8 - Trouble in Granth]]
+
+- We enter the city without trouble, but see a lot of church guards out in force, who appear to be searching for somewhere
+- When discussing where to go, Tarlo tell us that she knows someone we can trust, and leads us to the church heavy centre of town.
+- Tarlo takes us down into the church barracks, where we meet Akarda, her mentor and godfather
+- Akarda asks us what we've done, and explains that Zora has ordered us to be captured and taken to the catacombs beneath her mansion
+- We show Akarda the notes written by Zora and tell him that she is controlling Rowan
+- Akarda says he will help us fix this, and takes us out of the barracks under the guise of us being his prisoners, once he takes us out of the church district, he frees us and tell us to attack him to make it look like there was a struggle, Feinren uses web to make it look like he was stuck and couldnt chase us
+- We go to the dealer and explain the situation
+- The dealer says he knew that Zora was a liar, and knew that she could control people, but didnt know that Zora was controlling Rowan
+- The dealer tells us of a secret entrance to the catacombs beneath Zora's mansions on the mountain, and says that to break Zora's control over Rowan, we would either have to kill Zora or show Rowan the notes, but that the latter would be unlikely to work
+- As he finishes saying this, four church guards rush down the stairs and, after Gilbert asks him to under threat of destroying his store, the dealer transports us into his arena
+- Gilbert intimidates two of the guards into running away, and we quickly dispose of the other two, with Gilbert turning one of them into his breastplate
+
+## [[Session 9 - Infiltration]]
+
+- The dealer gives each of us a potion of healing
+- We see Akarda entering Zora's mansion
+- We enter the catacombs through the secret entrance, threatening one guard and killing two others
+- After going through a common room/area, we take the left path, so we havent explored the right path
+- We make friends with two spectators (Zoraq and Lormar) that were guarding the entrance of the path to Zora's chamber, after convincing them we were just here for maintenace
+- We promise to go on a picnic with these spectators
+- We enter Zora's chamber, and see her surrounded by guards and two spectators as she shouts at a blood Akarda infront of her, who is being held by one guard and beaten by another
+
+## [[Session 10 - Burning Webs]]
+
+- Tarlo kills two guards, Rahkoriin kills two guards and a spectator, Zora kills a guard, two guards and a spectator run away/leave the room
+- Rahkoriin transforms into a werewolf for the first time
+- Akarda dies trying to protect Tarlo from Zora's fireball
+- Zora tell us that 'they' (the puppetless string) gave her power and control
+- We defeat Zora who dies when she tries to talk about the puppetless string
+- Feinrens wand of secrets begins to point to a point in the room

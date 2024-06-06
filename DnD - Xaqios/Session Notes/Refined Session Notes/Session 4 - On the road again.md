@@ -1,5 +1,5 @@
 
-—--- Travelling back from camp —----
+##### —--- Travelling back from camp
 
 Gilbert attunes to the ring of mind shielding, and after hearing painful laughter for a while, has a conversation with the ring's inhabitant, [[Gabriel]]. Gabriel is the writer of Gilbert’s book.
 
