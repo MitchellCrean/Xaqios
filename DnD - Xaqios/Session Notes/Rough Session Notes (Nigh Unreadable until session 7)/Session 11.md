@@ -1,0 +1,66 @@
+- wand of secrets point to secret trap door in the floor 
+- Gilbert opens the trap door, revealling stair case carved into the stone
+- manage to convince tarlo to leave akarda
+##### Trapdoor
+- we walk on down and see, standing opposite a purple skinned person with long hair holding two axes looking to defend themselves, theres a door at the end of the room, sturdy locked wood door
+- hear - 'cant shape change infront of people you don't know'
+- - ' im a little bit Fae' - Kriih
+- explains why they were there, said they were a prisoner of Zora who forced to become a spy on us, was blackmailed
+- ret con that Gilbert got key for door from zora
+- Krihh name is actually Ambrose
+- We turn the key in the lock, dealer see in the chair, feet kicked up on the table, drinking one of Zoras drinks
+- Tarlo notices desk on left hand side with beautiful short sword with engaved eye on the table
+- Dealer - im glad to see you're all alive, gestures towards Tarlo, sorry
+- offers to help Dealer with Akarda problem
+- 'just pledge yourself to me', aside from the occasional task you would mostly live free
+- just think about it, theres always time ... until there isnt
+- 'im just very happy you got rid of Zora, shes been a nuisance '
+- enquires gilbert about gabriel, ' still screaming', causes Gabriel to rage and yell to kill him
+- few notes on the desk, stack of books next to dealers feet
+- Gilbert starts sorting through notes, dealer asks what he is doing, just sorting
+- Gilbert asks Gabriel how he fell into the hands of some goblins, merchant bought him from a rich guy who bought him from another rich guy, that merchant was then killed by the goblins and they took his ring
+- go through letters, most mundane, there are two more drawers in the desk that are locked
+- Gilbert tries the key that opened the door, doesnt work, brings out thieves tools
+- the letters in the drawers are very incriminating, correspondence between her and orcs she sent to kill us, the goblins we were sent to kill, instructing them on the most easily targetable merchants as such, and promising them to not send anyone against them
+- one unsent letter to the goblins saying that they sent a small band of worthless losers to deal with them, but that they should be manageable
+- direct correspondece to names we dont recognise, looks like theyve travelled far, they discuss the general idea of the puppetless string, what Zora can do to help them, such as taking over Granth, killing Rowan
+- theres a chest in the corner
+- Tarlo picks up the sword, feels herself flush with even more luck, the sword just feels magical
+- Gilbert swings open chest, bunch of gold and jewlery, one or two dusty books, some scrolls, I pick up the scrolls, i open up the first one and see it is a spell of mind spike and a spell of suggestion
+- split gold among party members, 100gp each
+- we also notice a little kennel in the corner
+- Rahkoriin inspects the kennel, its a miniature home for Zora's pseudo-dragon, spell on it that makes it bigger on the inside, has little lake on the inside, there seems to be a goose on the inside with a little sort of tailored suit
+- Rahkoriin knocks on the glass and the goose squawks back 'who are you', and starts moving towards the glass, open questioning the goose says he is Mors and he is not meant meant to be a goose, he was a very respected business man, they transformed him for giving them a bad deal
+- says he's trapped in the kennel
+- Ambrose intimidates Mors into telling us what he traded, 'i was kinda an arms dealer/informant
+- says we'll help for a price, tries to cross his wings as a human would
+- i can probably help you guys with finding some information
+- goose admits he supplied mass arms to the heretics
+- grab the incriminating notes and leave the study
+- hear bustling of guards above
+- i put an incriminating note in my boot
+- climb up ladder and surrender
+- ask to be brought to Rowan
+- throw us in a prison cell, take away our packs and weapons
+- after about 2 hours we are taken to Rowan, dont have belongings but there is a guard behind us carrying them
+- meet Rowan, he says, they said that you said you had info on Zora's wrong doing
+- show him the notes
+- say to himself 'how could we of let this happen, thankyou for saving our life', orders guard to give us our stuff back
+- Rowan says he will discuss this with the king, tell us to go to the healer and sleep in the mansion for high order guests
+- lore: theres a group of settlements under the king, who is sort of a king sort of a pope, in the main capital there is an actual king (bloodline) and then a religious king (who is the one that mainly matters), he is the king of multiple settlements but not the actual land
+- grab stuff for picnic
+- use detect magic and see that the eyes no longer shine with divination music
+- walk past guards cleaning up bodies
+- Have picnic with spectators they conjure our favourite food, lasagna for Rahkoriin, swirly jam cake for Gilbert, rib-eye steak for Feinren medium rare, stuffed capsicum with cheese board for Tarlo
+- I ask about where they came from, they came from Nirvana/mechanus
+- Tarlo goes to the morgue to see Akarda, Feinren and Rahkoriin head off to the mansion to rest, and Gilbert explores the right path that we didnt go down
+- he passes some guards, is slightly tilted up, until reach some really old catacombs with stairs going up
+- Gilbert walks up them and walks into Zora's mansion which is swarming with city guards, collecting evidence and such
+- In Zora's bedroom he finds journal, finds personal stuff but also some important details, such as how she met the puppetless string, Gilbert steals some jewellery
+- person of incredible power appeared to Zora when she was in her study, showed her their own power of control
+- Gilbert joins Feinren and Rahkoriin in the mansion
+- Tarlo goes to the morgue and asks to see Akarda
+- Have him on stone bench, morgue person is very friendly, comforts Tarlo and starts talking about funeral arrangements, recommends closed casket
+- pays 65 gold pieces for funeral arrangements and the nicer casket, organises funeral to be in two days from now
+- Tarlo stares at him for a while before leaving
+- We all gather back in the city hall mansion
