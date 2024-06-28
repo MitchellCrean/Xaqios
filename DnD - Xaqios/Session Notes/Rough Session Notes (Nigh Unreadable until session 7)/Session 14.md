@@ -1,0 +1,62 @@
+###### Still in battle
+- bolt of fire shoots at tarlo from forest
+- o1 fear condition ends, rushes at tarlo, misses twice, nat 1 on last hit 
+- o2 misses driver
+- command on rah ends, misses then hits o2, applies bleed, misses o1
+- driver misses orc
+- tarlo hits o1, 8, 12, and then kills it, splitting it in two
+- gilbert fires eldritch blast at o2, 10 dmg, 13 dmg, kills it, skin fractilises and he disintegrates
+- feinren scans the tree line and sees orc in tree line in forest line roughly in front of tarlo, uses 2nd level magic missile, 15 damage, kills him 
+
+##### Clean up 
+- Free the horses and have the driver calm them down
+- walk/trot to the city
+- gorgeous city, frequent symbols of the eye, but not placed such as in granth, much more symbolic then surveillance
+- have conversation with idiot sleeping guards, they let us in, calls up to joseph to let us in
+- joseph asks who we are, tell them we are here on direct request of the king, face pales, looks at slip of paper, shouts its the kings guests, let them in
+- portcullis raises
+- tarlo reassures guard after i half threaten him (next time you fall asleep on duty you might not wake up with a closed throat)
+- as we walk through the city we see more symbols of the vast, the buried, a few of the lonely or the end
+- professional guards walk up to us, apologise for the new kid guard, takes driver to the kings physician when we request
+- guards walk us to the center of the town (where the castle is), takes about 40 minutes.
+- well dressed servant opens the door when we knock (of the castle), tell us the king is sleeping, be quiet, that they werent expecting us til tomorrow, we are sleeping in sort of servants area, but still very extravagant, columns with intricant gold design 
+- feinren and tarlo recognise the influences and efforts of dwarvish and elvish workers in design of the place, elvish style architechture and writings, influences from elves, humans and dwarves
+- city was built by all 3 races after the war, designed to epicentre for all 3 races, but become a lot more human and eye dominated
+- rooms are comfy and lavish
+- butler bids us goodnight, says we will have breakfast in the morning and that we will be summoned by the king sometime during the day, and to generally stay in the area
+- get a gruff call of breakfast time 
+- butler infront of each door, we open the doors in a wave
+- follow into dining hall, seems to be one of many
+- dining table could sit 20, we sit down at one end of the table, gilbert tries to sit down at one end of table by himself, i sit right next to him and then misty step right next to him when he moves to the other end
+- head butler walks in, breakfast will be served in approximately 5 minutes, asks us if we have any allergies
+- tarlo is allergic to wood, gets hives, rahkoriin is allergic to shellfish
+- get served a 3 stack of berry pancakes, drizzled with maple syrup and berries around the plate, rahkoriin picks berrys off the table, all the waitstaff stare at him with annoyance due to time it took to prepare
+- the exact moment we are all done, the waiters pick up the dishes and leave the room, the double doors close (doors are white painted wood with floral design)
+- gilbert examines elvish writing on the walls, mostly are just various religious things
+- a while later the main butler walks in, the king has been informed of your arrival, he will likely be able to meet you before lunch, feel free to wander but please stay in the general area. He will likely also get you to meet with his council
+- Gilbert and feinren follow the butler to the royal library
+- Rahkoriin walks the grounds outside
+- library is two stories tall, rolling ladders, staircase going round to reach second floor
+- butler asks us to be careful, many of these are originals 
+- please do not go into any areas that are labelled restricted, if you do our magical alarms will go off, feel free to look at your leisure, please be careful, any damage you cause you will have to pay for
+- feinren picks up hard cover purple book, written in dwarvish 
+- put it back pick up another one, pull small book open, scratched handwriting in gnomish on the crafting of obscure magical items
+- gabriel asks gil what languages he can speak, tells him to go to a section he conjures in gils mind, directs him towards specific book
+- gil opens it up, its a book in language gil cant read but gabriel is happy about, looking at the writing gil can tell it is deep speech, doesnt really seem like it should be in the library (at least in a non restricted section) feels unsettling to look at the words
+- gil asks gabriel to translate, just turn the page
+- while passes, gabriel - ill let you in on a little secret, i knew the person who wrote this book, he slipped it on these shelves here a few thousands years ago. (additionally some of the writing in the pillars are elvish spells to reduce effects of time on it)
+- this book has some history of some of the happenings of the war that theyd rather keep under wraps, surprised its not in a restricted section. Ill tell you what it says, on the condition that when you meet with the king you fuck with him a bit, use minor illusion to, in the middle of a very important moment, project my voice into his ears as if i was behind him, and i want you to make my voice say 'you stink'
+- this text here details some of our journeys when we were a lot younger, it holds a lot of secrets to some of the heretical religions, especially the flesh, its quite interesting really. You see it was his study of the things one could do when they absorbed the power of the flesh, manipulation of themselves and others, truly interesting things. one of the things i found, is if, as a follower of the flesh, you eat some of the flesh of your enemy, you could sap some of their life. Anyway, he was a fool, he died, he picked the wrong god
+- gil - of course, and you didnt die either, ga - my souls still here, shut up (sulks a bit) (gil takes 6 psychic damage)
+- feinren casts detect magic, see a few books in each section with a faint magical glow, very strong glow from the restricted section
+- pick up a glowing book, just a book talking about how to properly worship the eye, feinren snaps it shut
+- rahkoriin walks on the lawn, castle is on natural hill in the center of the city, looks out to see the beauty of the city, great big marble walls, tree roots almost reinforcing the walls, bustling activity in business and residential section of the city below, sky is clear and sun is shining, and see regular patrols of guards around the area 
+- rahkoriin finds relatively secluded area, starts basically basking in the sun like a lizard would
+- Tarlo goes back to room and polishes armour
+- note - in past the decade or so the bloodline king has sort of usurped popey king and now is also the head of the church
+
+##### King
+- A servant finds all of us and says the king has summoned us, we arrive to the grand chamber, huge double doors, symbols of the vast (right) eye (middle, going over the gap between the doors) buried(left), intricately designed elvish, dwarvish runes and vine pattern design
+- door slowly opens into grand chamber, and the king lies at the other end, in robes of purple and red wearing intricately designed crown, silver base, cloth coming up, gold leaves on the base and normal pointy crown bits
+- throne is  purely stone, doesnt look comfortable but he lounges in it as if it is
+- im glad to see you all, ive been expecting you
