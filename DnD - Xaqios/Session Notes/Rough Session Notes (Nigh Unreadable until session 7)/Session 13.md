@@ -1,0 +1,99 @@
+- party wakes up
+- Tarlo says goodbye to akarda
+	-   akarda hugs - im so proud of you - a summons by the king
+- meet up at the city hall midday for the carriage, two horses, soldier, carriage with fancy doors
+- Tarlo inspects new warlock powers, questions gilbert on a few things
+- Gilbert is hovering the tiniest bit up off the seat
+- Gabriel has been weirdly silent
+
+
+##### When all of a sudden
+- driver thuds, horses stop and neigh
+- pull screen open
+- soldier slumped between horses, figure in the middle of the road
+- gilbert and others arguing about whether to get out of the cart or not
+- open back door, mostly humanoid figure, top half dressed in fancy suit, on their head they have 8 eye and pincers for a mouth, lower half is spider body
+- look at us, in calm and soothing voice, "hello there", everyone but Gilbert gets charmed
+- spider tries to magically intimidate Gilbert, no such luck
+- "friends, i am simply here to discuss with you an offer" (knows Rahkoriins name)
+- sp - i am one of the high generals of the puppetless string, and he? is quite impressed with all of you, the way you handled Zora was quite nice, you are really the only ones as a current threat to us, so, why dont you join us
+- Gilbert tries to charm the spider bro, it works
+- sp - gilbert, friends, i can offer you great power and riches, would you like a taste
+- ra - what kind of power
+- sp - im glad you asked, essentially we can take who you are and how you are, and upgrade you basically (level up)
+- gi - whats the twist, im not interested if there is no twist
+- sp - laughs, no twist unfortunately, can limit how long it lasts for
+- ta - why not
+- sp - reaches across and touches ta head
+- tarlo levels up 5 levels for 10 seconds, feels rushing power
+- gilbert accepts and also levels up 5 levels, tries to hit with guiding bolt
+- use of portent means it just hits
+- time for 11d6
+- 40 damage
+- mostly unphased, little hurt
+- anger falls over his face, and we all find ourselves in magical darkness
+- sp - hissing in darkness, i offer you power and this is what you do
+- gilbert is restrained in weird webby rope
+- hes made his choice, what about the rest of you
+- ta - basically berating gilbert
+- sp - im glad to hear that
+- fe - what are you going to do with him
+- after some discussion back and forth about either party attacking the spider restrains feinren
+- feinren is no longer charmed
+- sp - wraps around gilbert - i am  the high priestess of puppetless string
+- gi - im going to cut your strings
+- gi takes 11 damage as she sinks her teeth into gilbert
+- tarlo tries to get people to calm down
+- sp wlouldnt you want akarda to be sade
+- of course i want him to be safe, but lets discuss this when everyone is less stress
+- the spi drops the blackness, and has webbed gilberts mouth up, covering area where she bit him
+- look tarlo, see is this not calmer, see that they are the enemy, they have chosen their side, you can choose yours
+- tarlo doesnt join
+- rahkoriin discusses
+- sp i understand what you mean, i know how you feel, it hurts when our friends betray us, 
+- sp we would only hurt those who seek to stop us, 
+- fe - what about the merchants, those innocent traders, what were their big bads plans to destroy the puppetless string
+- fe gets mouth webbed
+- sp - will you not join me friends (ta and ra), join us and live in peace and unity
+- ta - however i just made a life changing deal with the dealer (spi knows this), so dont think i can change right now
+- sp - youre worried the dealer will be against you joining us, death is neither for or against us, it is more in between
+- sp - fine (webs tarlo up, webs mouth)
+- sp - and you (rah), whats your decision
+- ra - you drive a convincing bargain, but cant allow myself to work with the puppetless string
+- sp webs up rah, the four of you will know suffering, we offer you peace and power, there is no place in the world for you where we will unite, i will see you later and you will die
+- sp dissappears with webs in similar way to the dealer
+- the webbing we are in weakens
+- fe reaches his daggers and starts cutting through webbing
+- rah uses flame breath to burn webbing 
+- rah and fe help others out
+- driver still unconscious, fe sees driver is still alive, in magic induced unconsciousness
+- rah and fe carry him 
+- gi suggest code for if everyone else is charmed, "wow, you are acting awfully friendly" is suggested
+- driver wakes up, starts questioning what happened
+- tell them about high ranking member of the puppetless string
+- tell them to send word to Rowan that there are more spies within Granth, information is getting out fast (knew where we were and of Tarlos deal)
+- We bring the the cart over to the side, see lights in the distance approaching us (fe and gil), hear low grumbling voices, Gil recognises some goblin and other languages in lower voices we dont quite understand, and we both hear one or two words whispered in common
+- two goblins rush out of forest lines holding torches and swords 
+
+##### combat
+- goblin tries to hit me, misses, barely misses driver as it cuts into carriage
+- flame appears in distance behind cover of forest, just misses me, hits the carriage, which ignites
+- giant orc rushes out, wearing talisman neither gil or fe recognise, attacks gi and i with great axe, 6 damage each
+- another flame springs from forest, misses gil and hits carriage
+- ra leaves carriage and uses crimson rite, takes 6 damage, crit hits orcy worcy, 13 damage, and cuts across the orcs eyes, giving it disadvantage on attack roles
+- driver leaves the carriage and almost kills the goblin
+- tarlo attacks orc, misses all 3 attacks
+- goblin 2 attacks driver
+- use portent 9 on orc war chief to try to get them to fail fear, works on orc and goblin 1, both drop weapons
+- fei kills goblin 2 with magic missile
+- second orc wearing chainmail and weilding spear charges out of forest and casts command and rahkoriin, nat 1
+- rah hears a single word uttered from orc, grovel
+- everyone but rahkoriin gets opportunity attack on orc, 24 damage total
+- another orc comes out of the forest, tries to hit the driver, but misses
+- rahkoriin faceplants in the ground and starts to grovel
+- the driver kills the goblin 2
+- tarlo tries to attack orc 3, uses lucky sight, crits with 19, does 14 damage
+- crits with 20 again on second attack 10 damage, hits again and does 3 damage
+- uses action surge, hits, 6 damage, attacks again and misses
+- gi uses eldritch blast, 7 damage
+- fienren casts FIREBALL, kills orc 3, damages orc 1 and 2
