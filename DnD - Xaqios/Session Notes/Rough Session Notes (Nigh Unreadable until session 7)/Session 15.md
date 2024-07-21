@@ -1,0 +1,142 @@
+
+##### Hi king
+-  he is very charming, feel defences drop (doesnt seem to be magical, just naturally charming), makes us feel important, addresses us by name
+- pauses - gets more serious - now into the official reason i have asked you all here
+- i have a task for you, as seem to be an accomplish group
+- you were seemlingly the only group able to stop one of the puppetless strings puppets before they were able to take over a town or do something too impactful
+- i require your assistance - 
+- AND GILBETT USES MINOR ILLUSION (MMA MUSIC)
+- AND HE FUCKING FAILS THE DECEPTION/STEALTH ROLL
+- the kings ear twitches as he hears the "you stink", all of a sudden multiple eyes appear under the layer of the crown, open and close, and the king begins to laugh, and looks at gilbert
+- - that was quite, i cant decide if that was brave or stupid
+- im curious, how do you know that voice
+- gilbert waits for gabriel to tell him what to do (laughter)
+- - what religion do you serve, dont worry, i do not ask to persecute you, just that it took a surprising amount of searching to figure out whos voice that was
+- im the king and religious leader of the eye, i know most things, and i can 'know' even more
+- in the future i hope you are more serious, i cannot have children run my missions
+- now, there is an ancient family here, the marti family, i believe they have begun cooperating with the puppetless string or their mediums, i cannot see what they hide from me, they are ancient and very powerful.
+- until recently, when i claimed the leader of this religion, their descendents held that title
+- i am more powerful than any of them, but still their power isnt to be trifled with
+- there are 2 things i wish from you at the moment
+- at the beginning of next week there will be a ball for the higher ups, royalty and important people of the church, i will be attending, as will the mati family, i would like you to attend and investigate their behaviour
+- the 2nd task i require from you, there is a dungeon they guard, no one but the head of the family knows what resides in it, as has been since the beginning of its creation. it was created at the end of the great war, i wish to know what is inside
+- if there is anything amuck or dangerous there, destroy it
+- ra - what would our role be in the ball, how should we present ourselves
+- as heroes of Granth, as my honoured guest, it will not quite be a celebration of your acts, but your acts will be acknowledged 
+- gi raises his hand, I could go in disguise, extra discrete ya know
+-  that wouldnt be a bad idea necessarily, however from what ive seen from you, you arent exactly subtle
+- gi uses invisibility, then quickly deactivates it
+- impressive, how long can you be invisible
+- discuss invisibile plans
+- feinren mentions spying in granth from how they knew where and when we left, and tarlos deal
+- ring of eyes open and close again on the kings head
+- hmm, that is concerning, they did seem to know a lot about you
+- mention all the eyes in granth, and how they deactivated after zora death
+- only powerful people could do so, theoretically only those who create them could use them, howevr theoretically powerful cleric or so could use them, but they would have to interact with them at some point
+- you notice we dont have many of them, they were outlawed during my fathers reign, restricted due to privacy, and people highly connected to the eye shouldnt need them
+- still used for security now from lower level people in the church
+- the eyes in granth should of been destroyed
+- feinren mentions number of them, tarlo says that they were there since she could remember growing up
+- Zora was meant to remove them, clearly did not
+- perhaps that is something we will have to check in with other villages
+- closes normal eyes, two rings of eyes appear, drop of sweat appears, eyes close 
+- there are at least 3 other towns which have them
+- king wants us to get enough evidence to arrest the maati people
+- as they are very high up in the eye, things that they do wish are blocked from me, they have specific materials needed to do so
+- t -  what happens if we are caught, i imagine you cant support us if we dont get the evidence
+- f - what members to look out for, k - most importantly head of the family krat mati, krat is an older man shall we say, who has lost one of his eyes, in its place he keeps a metal ball that has the symbol of the eye etched into it, now im not sure how he achieved this, but he has linked this eye to actually see, as it is not an actual eye it sees everything in front of him
+- he is known to be more perceptive and able to see through illusions, but he cant always do so, his observation is not perfect
+- the most important thing is at the ball, that you are not seen *points at gilbert*, it is incredibly important that you are not seen
+- the ball will happen in a week
+- the dungeon, i wish for you to investigate it, as soon as possible, do not be caught
+- if you are caught spying during the ball i can help you
+- if you are caught breaking in, and arrested, i can help you
+- if they decide to kill you when you break in, i can not help you
+- i believe that down there they keep important records of their family as well, if they are colluding with the puppetless string, it will be there
+- they are also hiding something there, since the great war, and only the head of the family member knows what it is
+- ra - this is to be done before the ball
+- ki - ideally
+- you will be provided the location of the ball tomorrow, one of my sergeants will provide you the details, and give you a disguise to travel there 
+- they are a very trusted agent of mine, they will not betray you
+- bye
+- head butler dude has been waiting in exact same spot since we entered
+- we are escorted back to our rooms
+- gilbert notice that he is being taken back to a smaller room that isnt quite as nice
+- all his belongings replaced in the exact same spot as before in his old room
+
+
+##### Bye king
+- feinren write petty in a note on the king in his notebook, noticing gilberts smaller room
+- gilbert panicked, we didnt ask for a reward
+- rings the bell
+- butler appears with utmost haste
+- gi - i demand a meeting with the king
+- you just had a meeting
+- - yes but we forgot something
+- may i ask what you forgot
+- - ... no
+- i will schedule a meeting, is this an urgent matter
+- - yes, this is a matter of utmost urgency
+- of course sir, i will pass along your message of utmost urgency and secrecy
+- butler returns, the king has accepted an audience with you, will your colleagues be joining you, of course (gets exceedingly more distressingly british)
+- gilbert seeking reward for saving granth
+- king agrees, what reward do you want
+- gil - money
+- tosses him a gold piece
+- after banter and another gold piece, gil asks, may i list a number
+- every party member gets 500gp
+- feinren swaps his out for either 2 3rd level spells, 4 2nd level spells, or 5 1st level spell scrolls
+- guarantees us reward for our further efforts once they are done
+- should you prove yourselves particularly useful, im sure we could find many more missions that you should be useful for
+- we leave the room, king looks very relieved that gilbert specifically is gone
+- tarlo and rahkoriin find seven 100gp bags in their rooms, feinren finds 200gp as well as promise of scrolls, gilbert gets the 500gp
+- there is a note with everyones money except gilbert, saying thankyou for saving granth :) (smiley face)
+- feinren goes to library and falls asleep in armchair reading gnome book on magic item crafting
+- rahkoriin leaves to go to same place outside he went before, meditating
+- tarlo and gilbert walk around the palace
+- butlers come around to us and say 'the lieutenant is waiting'
+- we are all taken to a room in the castle we havent seen before, military strategy room, maps everywhere
+- lieutenant in fancy officer uniform/armour
+- without turning to face us, the king has told me to assist you all in your endeavour
+- i will get you there secretly and safely, i will provide you with necessary items, however once you enter you are on your own
+- older man with scar
+- says the best time to infiltrate tomorrow during the day
+- you have permission to neutralise any guards, but avoid doing so if necessary
+- best case scenario is that noone knows you were there, unless of course there is something dangerous in there, in which case destroy it
+- you will be required to get some documents, we dont know exact layout, but we do know there is a library for the head of the family, it is his private office, and he will keep his most incriminating documents there
+- ra - entrance?
+- there is one entrance, it is guarded but during the guard change one of my guards will cause a disturbance, you will have a minute to get it, leave no traces, make sure no one knew it was you specifically who broke in 
+- this mission is very important, dont screw up, there will be some things we cant help you with, so dont fuck this up
+- the dungeon is on the edge of the main centre of town
+- i can provide you all with a single health potion, but i can direct you to a merchant of ours who can provide you with more wares 
+- i will see you all tomorrow at 11:30
+- turns his back to us
+- we all find a health potion on our bed
+- tarlo notices her room is pitch black
+- tis a supernatural darkness
+- tarlo closes the door and requests back up from the rest of the party
+- room is now normal when we open the door
+- feinren subtly places familiar under bed, nudges tarlo to show her that he has done so
+- gilbert guesses it is the dealer
+- everyone but tarlo leaves, feinren looks through familiars eye
+- dealer appears in the room, room has darkened again but it is not pitch black
+- feinren leaves familiar to tell others it is the dealer, and then goes back into familiars eyes
+- dealer and tarlo talk about using new abilities, death and life are the same side of the coin
+- now, this is not simply a social call, the dungeon you will be entering tomorrow, i need you to do something for me, in this dungeon, at its very end you will find a powerful item guarded by a powerful warrior, i dont know what specific one guards it , i need you to destroy this for me
+- it is something that was stolen from my people after the great war, i want you to break it, doing so will benefit me, will benefit you and will benefit many others
+- how will i know it is the artifact i need to break
+- you will know
+- it wont hurt anyone else?
+- no
+- but you will have to eliminate the warrior guarding this, i do not know which one guards this specific item
+- breaking this item will only benefit others
+- you can tell others in your group about this, but you will not tell the king about this conversation, or any other people
+- the eye is powerful to see things, but using our power, we can, through a sort of dream logic, kill information, and keep it from their eyes
+- will this cause any problems?
+- this will cause no problems, as you remember the king told you to destroy any items that were dangerous, this will count, so you will not be breaking any orders
+- tarlo - doesnt seem i have a choice, and doesnt seem too bad what you have asked so far
+- dealer pats tarlo on the helmet, rings make sharp sound (trying to be nice)
+- i will check up on you once its done
+- feinren leaves familiar passes on info to others as we walk away
+
+End session
