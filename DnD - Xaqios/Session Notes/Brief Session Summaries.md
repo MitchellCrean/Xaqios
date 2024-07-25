@@ -110,3 +110,53 @@
 - Zora tell us that 'they' (the puppetless string) gave her power and control
 - We defeat Zora who dies when she tries to talk about the puppetless string
 - Feinrens wand of secrets begins to point to a point in the room
+
+
+#### Brief summary for Session 11-15 for Huon
+11
+- Find ambrose in trapdoor beneath Zora's chamber (was blackmailed to spy on us)
+- Tarlo finds lucky sword 
+- Rowan thanks us for saving Granth, say he will talk to the king
+- eyes no longer glow with divination magic
+12
+- Gilbert and tarlo both have dreams, tarlo dreams first encounter with akarda, gilbert has dream showing him how his body will continue to change with the spiral
+- have akardas funeral, dealer talks to tarlo throughout the funeral and manages to convince her (after showing her akarda in hell because they werent following eyes trues teachings) to become a warlock with him as her patron in return for ressurecting akarda and warlocky powers (1 level in warlock with some neat death stuff), in exchange for owing many favours
+- Ressurect akarda after the funeral, akarda becomes head of eye church in granth
+- Rowan tells us the king has summoned us to the capital
+- buy bag of holding for the party
+13
+- priestess of the puppetless string ambushes us on the road to the capital, knows all our names, knows tarlo made the deal with the dealer
+- priestess charms all of us except gilbert, gilbert charms the priestess, priestess says if we jin we will be given immense power (+5 levels), offers us a temporary taste
+- gilbert accepts temporary 10 seconds of power, immediately uses it to blast the priestess
+- priestess covers us in magical darkness, binds gilbert, binds feinren after he starts questioning too much, binds tarlo and rahkoriin after they each reject her deal
+- priestess disappears in similar way to the dealer
+- continue to the capital, get ambushed by a bunch of orcs and goblins, kill them all, were wearing symbols of the flesh (i believe)
+14 
+- reach the capital,  idiot guards sleeping on duty
+- let into the capital, proffessional guards guide us into the palace, very beautiful, clearly combineed effort of elves, dwarves in humans in designing and making the place
+- have breakfast, find out tarlo is allergic to wood, rahkoriin is allergic to shellfish
+- gilbert and feinren go to library, gilbert feels himself guided towards book that is written in deep speech, gabriel translates some of it in return for gilbert using minor illusion to call the king stinky in gabriels voice
+- book shows history of the war that current 'good' religions are trying to keep more hush
+- additionally book was written by 'friend' of gabriel, follower of the flesh, details some of the journeys and gabriel reveals their finding that a follower of the flesh could sap the life of their enemy by eating their flesh, gabriel says his friend chose the wrong god
+- we are brought to see the king
+15
+- king sees naturally (non magically) charming, gilbert does as gabriel asked and king laughs and says how do you know that voice, says took quite a bit of effort for him to find it (ring of eyes opened on his head and blinked)
+- the king tells us about the mati family, who he overthrew, an old and poweful family he believes might be working with the puppetless string, and that they are capable of hiding some things from him with different materials
+- kings asks two things of us
+	- go to a ball in a weeks time where the mati family will be, and try to learn what you can about them
+	- go into a dungeon the family guards, try to find documents or evidence proving that they are working with the puppetless string, and kill the thing that they are hiding in the dungeon (there is something in the dungeon that has been there since the great war thatb only the head of the family knows about)
+- bring up the spying in granth and the eyes zora had everywhere, they were supposed to be removed many years ago as they were outlawed
+- ask if eyes could still be used by someone other than zora, yes but only if powerful person, and would have to interact with the eyes at some point. King uses two ring of eyes on his head to investigate if the other villages still have their eyes
+- king says he should be able to help us anywhere, except if we are found in the dungeon
+- tells us to watch out for Krat, the head of the family who is an older man who lost one of his eyes and replaced it with a metal ball etched with a symbol of the eye that still allows him to see, and bee unusually perceptive
+- asks to do the dungeon before the ball
+- after leaving the kings chamber gilbert realises we havent been paid, and schedules another meeting with the king
+- after some banter the king agrees to give each of us 500gp, feinren swaps out this money for some scrolls
+- when we get back to rooms everyone except gilbert finds 200gp more than promised on their bed
+- meet with sergeant who tells us they will take us to the dungeon at 11:30 tomorrow and distract the guards during the changing of the guards
+- tarlo goes back to her room, sees darkness, calls friends over, darkness disappears, feinren places familiar in the room under tarlos bed and lets her know, everyone except tarlo leaves the room
+- when only tarlo and familiar are in the room, dealer pops in
+- dealer says that the thing the king asked us to kill is guarding something, and asks tarlo to destroy it, promising that destroying it wont be dangerous, but says she musnt tell the king or anyone outside the party about said plans to destroy item
+- dealer leaves, feinren passes on what he heard through the familair to gilbert and rahkoriin
+
+

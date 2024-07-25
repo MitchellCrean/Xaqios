@@ -14,7 +14,7 @@
 - - what religion do you serve, dont worry, i do not ask to persecute you, just that it took a surprising amount of searching to figure out whos voice that was
 - im the king and religious leader of the eye, i know most things, and i can 'know' even more
 - in the future i hope you are more serious, i cannot have children run my missions
-- now, there is an ancient family here, the marti family, i believe they have begun cooperating with the puppetless string or their mediums, i cannot see what they hide from me, they are ancient and very powerful.
+- now, there is an ancient family here, the mati family, i believe they have begun cooperating with the puppetless string or their mediums, i cannot see what they hide from me, they are ancient and very powerful.
 - until recently, when i claimed the leader of this religion, their descendents held that title
 - i am more powerful than any of them, but still their power isnt to be trifled with
 - there are 2 things i wish from you at the moment
@@ -140,3 +140,5 @@
 - feinren leaves familiar passes on info to others as we walk away
 
 End session
+
+i will pick up counterspell, hold person, and invisibility
