@@ -1,0 +1,77 @@
+##### My moneys on a beholder, but first, merchant stuff
+- get knock on doors from butler
+- the merchant will see you now
+- merchant
+	- humanoid figure, covered in fur, head of a lion and dressed in very nice clothing, his hands are reversed (palms up) 
+- both merchant and lieutenant are there 
+- this is the royal merchant, you will treat him with respect
+- lieutenant seems super serious, but likes the flair of turning around
+- ra - do you sell magic items, yes
+- Feinren grabs scrolls of counterspell, hold person, invisibility
+- merchant pulls out small bag of holding, fishes around and drops a scroll of counterspell, does this twice for the other spells
+- feinren bows to him awkwardly, merchant awkwardly bows back, smiles at feinren, seems he likes him. Feinren heads back to his room
+- Tarlo gets cloak of elven kind (merchant says elves with a tone)
+- Rahkoriin gets pereapt of wound closure 
+- gilbert, after bartering got the deck of illusion and medallian of thoughts
+- feinren learns invisibility and counterspell
+- everyone gets called to breakfast, lovely breakfast, probably best breakfast each of us have had
+- after hanging out in gilberts room, we all get called, bought to a carriage out the front, meet the lieutenant again
+- do not get seen, do not get caught, do not get killed, good luck, gives us the note of pllaned disturbance, with details on where the dungeon is and a drawing of it, and the timing of the shift change
+- we all dive out of the carriage, rahkoriin and gilbert dive out with grace, tarlo stumbles but quickly darts in, while feinren falls face first into the mud, before scurrying in, uses prestidigitation to clean himself off
+- asks tarlo what we are going to do about the dealers request, agree that its fine
+- talk about invisibility plan
+- together feinren and gilbert invisible entire party
+- all make it into the dungeon
+- statue with single eye with lids and eyelashes, looks like its about to blink, beautifully designed, to each side is spiral staircase
+- walk down the staircase
+- walk down hallway, two doors one on the left side, one on the right, both closed
+- listen to door on the right side, here voices through it (3 nat 20s so far, gilbert, feinren and rahkoriin)
+- go to door on left side, no sound, feinren peeks in and sees chest, initially says theres nothing in there and then foolishly tells gilbert theres a chest, gilbert goes to open the chest, and, ta da! its a mimic!
+
+combat 
+
+- mimic attacks twice, second attack causes gilbert to loose concentration and the invisibility spell drops on him and tarlo
+- tarlo does flurry of attacks on the mimic
+- rahkoriin crit hits (dropping his invisibility) and obliterates the mimic
+- hear guards coming down to investigate
+- gilbert, rahkoriin and tarlo hide, gilbert casts minor illusion to make chest look whole, feinren just stands invisible in the corner
+- guards come in, find nothing an leave
+- find another door, its locked, gilbert unlocks the door, feinren peeks head in, sees person sleeping, leaves the room
+- continue down the hallway, going past some more doors and leaving them unopened
+- the stonework of the walls is beautifully carved, seems to be carved out of the stone of the ground and not brickwork, but is still in pristine condition
+- find door at end of the hallway
+- cant hear anything on other side
+- tarlo gets nat20 trying to open door stealthily, its locked
+- gilbert unlocks the door beautifully
+- door appears to be a study, large desk, intricately designed with eyes, bookshelves around 
+- feinren drops invisibility and casts detect magic, sees nothing, uses wand of secrets, it gently pulses towards one of the book cabinets
+- wand points towards one of the books, feinren pulls it and the bookshelf pulls back and reveals another stone hallway
+- feinren looks at notes on desk, nat 20, sees correspondence with elves and dwarves, doesnt mention the puppetless string but does mention the benefactor
+- notes very consistently talk to a particular dwarvish and elvish individual, all 3 reference their benefactor and regaining power
+- one or two notes mention that we must keep the ancient mission, keep it sealed keep it secret
+- some notes talk about keep information secret, some insulting the king
+- retcon, actually see the carpet glowing, very comfortable, seems to be enchanted to be comfortable
+- walk down the stone pathway for 30 minutes
+- at the end reach a heavy stone door
+- tarlo nat20 opens the door after rahkoriin failed to
+- in the room see magically burning torches, infront of us is a kneeling suit of armour without a head, full of something
+- feinren recognises it as an ancient sort of construct, made by old users of the eye
+- gilbert asks gabriel if he knows anything of the constructs
+- gabriel - starts swearing profusely, those are the reason i fucking died, gets too angry to give more details, ... that thing, its powered by this crystal, destroy it, and we will be stronger still
+- through detect magic feinren sees magic around the doorstep on the other side
+- larry flies through the first few feet of the doorway, construct start to shift and move, and flaming green pupil extends out of the armour
+- we all here mentally 'you are not the master, you must not leave'
+
+- gilbert uses detect thoughts on creature, asks where the crystal is, hears me in thoughts
+- presses on the question and hears 'head' or 'eye'
+- rah grapples the construct, hits it and then does hybrid transformation, applies bleed
+- feinren restrains it with web
+- rah applies bleed again
+- feinren misses construct with firebolt, web catches fire
+- rah does a shit ton of damage
+- web burns away, construct hits tarlo and rahkoriin
+- gilbert tries to use slow on con, fails, but then heals tarlo for 5
+- tarlo crit hits con, chooses to target the head, swings sword through head, hits a solid pupil, which cracks, shooting off bright shining light, and the con stumbles and falls prone
+- rahkoriin deals finishing blow, pupil starts to open, a slot in it opens, shining brightly from inside is a crystalline structure floating
+
+session stop here
