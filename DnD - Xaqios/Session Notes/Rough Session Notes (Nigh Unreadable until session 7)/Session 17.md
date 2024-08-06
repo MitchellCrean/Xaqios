@@ -1,0 +1,48 @@
+- crystal emits some sort of dark image
+- gil and feinren move back and tarlo raises shield prepare to remove it, but...
+- rahkoriin pulls crystal out of the eye
+- as he snaps the crystal out of the eye, and fire that was supporting the pupil explodes out, dealing 24 damage, rahk takes 12, gil takes 24, tarlo takes 12
+- tarlo stabilises gilbert
+- rahkoriin notices the energy of the crystal is pointing towards the altar
+- altar is statue of pure stone, in centre is a hole, dwarvish, elvish and common writing, flaming red fire illuminates all the designs of the statue
+- rahkoriin slams crystal into hole in the statue, feinren notices and yells
+- crack and hiss sounds, crystal locks into place in the staue, crystal starts to crumble, before exploding, black gooey energy follows out of crystal, part of it goes into air and part of it goes to tarlo, matching her body shape before slamming into her and disapearing, tarlo regains all hitpoints
+- around the altar there is a lot of writing
+- note black mist shape also went to gilbert, same effect as one that went to tarlo, but was more spirally
+- tarlo reads some of the writing (common and dwarvish), message is same in both languages, the power held here is in the interest of all of the Brugado (is being held in the interest of the brugado), do not unleash unless the situation is dire
+- gilbert hears gabriel say 'now that was something beautiful', his presence in the ring has gotten stronger, as has the book, and the coin
+- feinren asks if its possible for him to escape from the ring
+- gabriel doesnt know, but i havent felt this powerful in a millenia
+- feinren makes lotr joke
+- feinren remembers the Gando family for the elves and the 
+  Darga clan for the dwarves were the correspndets of the dude with one eye (other eye now metal)
+  - feinren and gilbert dual cast invisibilty at third level, and walk back
+  - take the notes from the study
+  - start heading back
+  - see 3 figures up ahead, one is guy who was sleeping in the bed before, other are the two guards
+  - sleeper chews out guards for opening his room when he was sleeping, but then congratulates them on taking out the mimic
+  - we all try to sneak past guards, successfully do so
+  - get out of the dungeon, guards are facing away from, gate is closed, guards on other side of the gate
+ - gil and tarlo drop invisibility and enact mimic extermination team plan
+ - convince guards to let them out
+ - as they are leaving one of the guards makes small talk about tiny mimics disguising as jewlerry
+ - walk into safe house
+ - note has been left inside saying wait here until 7pm, carriage will come outside, wait there for 5minutes, during those 5 minutes you must get in
+ - rahkoriin breathes fire fire onto his coins as he thinks one of them might be a mimic, one of them jumps up and hits rahkoriins face, dealing 14 poison damage
+ - feinren uses magic missile to hit the creature, 11 damage
+ - insect scuttles off and scurries towards gilbert
+ - gilbert uses vicious mockery on the insect, 8 damage
+ - gilbert eldritch blasts it, 13 damage, as he does so fingers extend, look heavy, bug dies, looks compltley normal coin (eldritch blast transforms it into platinum coin)
+ - feinren looks at coin, gives it back to gilbert and writes note in journal 
+ - feinren scribbles fevorously in note about coin transforming into platinum
+ - carriage pulls up, we all get in, it waits exactly 5 minutes before going on
+ - carriage reaches castle, where commander is waiting for us
+ - tell him about notes and construct, and fact that tarlo and gilberts faces were seen
+ - says the king will meet us tomorrow
+ - feinren goes back to his room, asks for dinner to be delivered to his room, while others head to the dining hall
+ - place where tarlo sits at the table has been covered in cloth, 'we know wood is only dangerous to you when consumed, but we thought wed take some measures just to be sure'
+ - dinner is steak with delicious sides, mushroom peppercorn sauce, mashed potato and beans
+ - feinren learns hold person
+ - tarlo goes back to her room, after about 30 mins of meditation a dark shape appears in the room
+
+Session End
