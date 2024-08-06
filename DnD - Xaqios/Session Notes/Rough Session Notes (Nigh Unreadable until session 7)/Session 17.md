@@ -45,4 +45,4 @@
  - feinren learns hold person
  - tarlo goes back to her room, after about 30 mins of meditation a dark shape appears in the room
 
-Session End - 
+Session End 
