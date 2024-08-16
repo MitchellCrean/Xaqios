@@ -1,7 +1,7 @@
 - crystal emits some sort of dark image
 - gil and feinren move back and tarlo raises shield prepare to remove it, but...
 - rahkoriin pulls crystal out of the eye
-- as he snaps the crystal out of the eye, and fire that was supporting the pupil explodes out, dealing 24 damage, rahk takes 12, gil takes 24, tarlo takes 12
+- as he snaps the crystal out of the eye, and fire that was supporting the pupil explodes out, dealing 24 damage, rahk takes 12, gil takes 24, tarlo takes 12, fei takes 6
 - tarlo stabilises gilbert
 - rahkoriin notices the energy of the crystal is pointing towards the altar
 - altar is statue of pure stone, in centre is a hole, dwarvish, elvish and common writing, flaming red fire illuminates all the designs of the statue
@@ -15,7 +15,7 @@
 - gabriel doesnt know, but i havent felt this powerful in a millenia
 - feinren makes lotr joke
 - feinren remembers the Gando family for the elves and the 
-  Darga clan for the dwarves were the correspndets of the dude with one eye (other eye now metal)
+  Darga clan for the dwarves were the correspondents of the dude with one eye (other eye now metal)
   - feinren and gilbert dual cast invisibilty at third level, and walk back
   - take the notes from the study
   - start heading back
@@ -36,11 +36,11 @@
  - feinren looks at coin, gives it back to gilbert and writes note in journal 
  - feinren scribbles fevorously in note about coin transforming into platinum
  - carriage pulls up, we all get in, it waits exactly 5 minutes before going on
- - carriage reaches castle, where commander is waiting for us
+ - carriage reaches castle, where lieutenant is waiting for us
  - tell him about notes and construct, and fact that tarlo and gilberts faces were seen
  - says the king will meet us tomorrow
  - feinren goes back to his room, asks for dinner to be delivered to his room, while others head to the dining hall
- - place where tarlo sits at the table has been covered in cloth, 'we know wood is only dangerous to you when consumed, but we thought wed take some measures just to be sure'
+ - place where tarlo sits at the table has been covered in cloth, 'we know wood is only dangerous to you when consumed, but we thought we'd take some measures just to be sure'
  - dinner is steak with delicious sides, mushroom peppercorn sauce, mashed potato and beans
  - feinren learns hold person
  - tarlo goes back to her room, after about 30 mins of meditation a dark shape appears in the room

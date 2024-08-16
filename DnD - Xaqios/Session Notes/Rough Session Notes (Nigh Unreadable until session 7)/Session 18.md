@@ -1,0 +1,152 @@
+##### Tarlo room 
+- Tarlo notices that her room is pitch black, standing in front of her is the dealer
+- dealer comments on succeeding the mission
+- t-'i feel powerful, what was that'
+- d-'that was our power, well not just ours but...'
+- d- 'i wont explain it all to you but there are more of these crystals scattered throughout the land that should align with your adventure quite well. when you are near one i will appear and ask you to destroy it'
+- why are these crystals scattered around
+- long ago, these accepted fucke.. religions, took a large amount of power, and they stored it and they used it, each time you destroy one of these you will feel more and more power, those crystals belong to us and they were stolen
+- how do you know all these crystals will be in our path
+- i know many things, *sits down on bed and pats beside him (gesturing for tarlo to sit)*
+- dealer is awkwardly trying to be a mentor
+- tarlo sits down next to him 
+- the path you are following is one to stop the puppetless string, to do that you must fix the corruption in brugado, this corruption runs deep, wherever this corruption exists there will be a crystal, and each crystal will be related to a god
+- now whenever you run into one of these crystals, you need to destroy it
+- how did your warlock friend feel after you broke the crystal
+- similar to me, more energised more powerful
+- good, good, thankyou
+- i will contact you later, but leave you for now, dealer disappears
+
+##### Next day
+- knocks on the door from butlers, calling for breakfast
+- at dinner table bring out delicious selection of foods, french toast, berries, bacon on the side
+- gilbert pranks rahkoriin with minor illusion, feinren later helps, rahk sticks two blueberries in his ears, confusing wait staff
+- feinren makes blueberries appear on french toast
+- rahkoriin activates crimson rite in response
+- wait staff pick up blueberries rah put in his ears with thick cloth, staring at him with bit of disappointment 
+- head butler tells us king will meet us later today
+- everyone but rahk goes to library, rahk goes to courtyard\
+- gil uses minor illusion to talk to rahk when he sees him through the window
+- fe asks for history section
+- person comes in with series of tattoos of eyes on his head, in a suit 
+- librarian to gil ' please step away from that section sir ' (gil was near restricted section)
+- librarian says book would most likely be in restricted section
+- basically asks for bribe, says wallet is light
+- feinren gives 30 gold coins, librarian dumps it into large purse
+- librarian shows feinren a book, warns him not to carry it around the king
+- cover isnt obvious but still dont show it (i think thats what isaac said), cover appears to be in dwarvish
+- this book contains quite a bit of history about the war, was written by a warlock of the dark, a powerful head of the guild of the assassins
+- dont suppose theres an author sketch on the back
+- tattoos glow, no there would not be (giggles, likes feinrens joke)
+- walk into restricted section with him, air grows sold and he walks through it, he picks out book, walks back
+- feinren takes book, says he will give it back to librarian when he is done
+- lib - try not to take it out of the grounds, has location tracker
+- book is written in common and elvish, the warlock who wrote it was a half elf
+- tarlo and gil both ask if they have any books that would suit them, tattoos glow, devious smile on face, directs tarlo to picture books, asks gil if he wants books in elvish
+- asks for book on the spiral
+- how accurate do you want those books to be
+- fairly more accurate
+- id like to help you, but i have a small issue, my purse is quite light
+- gilbert also gives him 30 coins after feinren signals to him
+- asks for history spiral book
+- librarian subconsciously thinks tarlo is a kid (knows they are halfling but still subconscious)
+- feinren sees in book that during the war:
+	- the hunt was originally with the ginshin (not particularly strongly aligned), the end and the spiral were both aligned witht he brugado, they seemed to be the more powerful, the starters of the brugado, and the dark was completely unaligned, would assassinate for the highest player or who was aligned with particular interests at the time **WRITES THIS IN JOURNAL**
+	- more analytical book
+- gilbert reading through his spiral book
+	- in section about the height of the great war, referenced quite a bit, the greatest spiral sorcerer, also called twister of the clay by the dwarves, is talked in more of a positive way at the start of the wall, curse by the end, more horrifying context. from pos to neg figure
+	- gabriel comments as going through book
+		- no they never damaged me
+		- i would say technically he won in that duel, but i won in spirit
+		- is proud of the twister of clay reference
+	- more history detailed book, more personable, following characters
+- butler finds us and asks our presence, finds rahkoriin eventually, very nice and secluded spot youve found here. Ra - nice and away from magic users. Bu - yeah i get that
+- feinren puts book into his pack, gilbert takes his with them, both put books/packs in respective room
+
+##### Kings chamber
+- stand outside stone doors of chamber
+- discuss what to say to the king about the construct and the crystal
+- walk into room
+- talks about the notes, werent very incriminating
+- feinren accidentally left notes in room, king tells him to hand it to butler
+- tarlo thinks about king has lot of trust in butlers
+- eyes on kings head open up, comments on tarlos thought
+- talks about how nature of eye to share information, feinren kinda scratches back of neck while thinking of family
+- tell him about the darga clan, gando family and the benefactor
+- king didnt think these families had communicated for decades
+- talk about construct
+- feinren mentions having inkling of it being more common in the war used by the eye
+- what did this construct look like during the fight
+- hard to say, it was horizontal for most of the fight
+- king goes to make joke but holds himself
+- tarlo - it was like an empty suit of armour with flaming green eye as a head
+- did you find a source for this power
+- deception checks, nat 20 G, 13, F, 17 Ta, dirty 1 Ra
+- ra says he was just thinking about gilbert being horizontal
+- king laughs, what you do in a dungeon is your own business
+- king presses rahkoriin, did you see the soruce of power - NO
+- tarlo says rahkoriin was in beastial form so lost some of the details
+- king says he has only met one like ra before
+- kings asks, does anyone else have an answer to my question
+- manage to brush pass situation
+- king, i understand two of you were seen, gil - was unavoidable
+- talk about if should of taken notes since they didnt seem too important and old man is bound to notice them missing at some point
+- now let us discuss the upcoming ball
+- there are 4 days for us to prepare, it is the beginning of next week, we will have to get you all some nice tailored suits and a dress, with exception of gilbert, will have some people treat you in general etiquette as assume none of you have attended a ball such as this before
+- general lessons on basic ballroom dancing
+- aside from that in the next 4 days you will recieve more info about where certain people will be 
+- the mati family will be hosting the ball, its a rotating register of families of who hosts
+- gil laughs and says balls 
+- if you could please focus gil, this part is particularly important for you
+- the maati family is hosting, as such we will have easy access to their living quarters and studies
+- the most important part of all this is that we find some evidence against them
+- there will be a high level of security there, maati family is old and rich, weaker in recent years but still high level of security
+- dont get caught, if you do caught, make sure it is in the pursuit of the right of information, the evidence i need to put them away
+- ask about spell component packages 
+- bid the king adieu, says i would wait not to be seen today, but feel free to roam tomorrow
+- gilbert probably shouldnt show his face
+- small note, general population here can have a distaste for elves, just be aware, best not to end up in any trouble
+- farwell 
+
+##### Outside chamber
+- on gilberts bed are two big brass balls, they are worthless, way too light to be brass
+- tarlo keeps reading book, starting to become expert on flora and fauna in capital and surrounding regions
+- rah passes through ballroom, sees place with stained windows that looks like place for great view, place has two tables, from this vantage point rah can see basically everyone in area below him
+- gil keep reading book, general nature of spiral, what he basically already knows but just confirming it
+- feinren grabs his notes and starts looking for the butler, butler immediately appears and feinren hands notes over and starts reading book
+- isaac will give us book perusers info once we have read significant portion of the book unless we specifically ask for information
+- the day passes on, eat late lunch and dinner
+- head to sleep 
+- feinren and gilbert compare books 
+- elvish section of feinrens book are more personal notes, annotations and such, some is warlock just purely insulting different things, sometimes talking about something elvish in particular, ie talking about elvish person
+- day wakes 
+- go to breakfast, have brought out croissants as well
+- butler says we can go throughout the city today, but that a tailor will come around to start tailoring and start our etiquette and dance lessons
+- rahkoriin tries berries, likes them
+- feinren and gil make bet that name is triplelock  F / lock G
+- fe asks butler if he knows where gnome depot is, says dont know exactly where it is but should be in the centre of the town lane, after more discussion butler hands us a map, not very detailed but just general layout
+- as we are walking in town, perception check, (22) only feinren gets prickling feel of something watching us, and flash of movement of black clothes, not 100% sure it is something but got this feel and vague flashes, gilbert gets vaguer feeling 
+- as wander through the city see bunch of interesting stalls and such
+- see quite poor population in the city, bit of classism and high end fashion stalls
+- see churches/prayer area for the eye, and the vast and the buried,but only see one or two of the last two 
+- see clothing, religion stalls, one or two nice bookstores, some magic item stores
+- feinren feels knowledge that R L R will take down to gnome depot
+- gnome depot is 2-3x bigger than granth one
+- gen adventuring gear, nice armour, lower level adventuring gear
+- see gnome at the back of the shop, scribbling away at his counting books
+- f - hello there
+- why hello there, anything i can help you with
+- mention doublelock, hasnt seen him in 30 yrs, tone sees doublelock as a much younger kid
+- mention that doublelock has made deal with the dealer, explain who dealer is 
+- tarlo asks for bag of a thousand ball bearings
+- f - sorry i havent introduced myself, im feinren. l - im locky!, feinren looks over to gilbert
+- gil - can i call you lock, lo - sure.
+- lo - suppose if you call me lock you would be my friend, and would such a friend like to purchase an item
+- tarlo buys 6 - 1000 ball bearings
+- locky talks to gilbert about bonsai trees
+- bonsai would be 100gp, out of gilberts price range
+- gilbert says he is always in need of more arrows
+- gilbert finds nice quiver, has 3 compartments that connect to extra dimensional parts, can hold many arrows, bolts, javelins, spears and even quarterstaffs, and never weighs more than a kg
+- gilbert asks for healing potions, we are on bit of a short supply, two per customer
+- 35gp each, gilbert buys 2 potions of std healing
+- 
