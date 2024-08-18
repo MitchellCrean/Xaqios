@@ -119,7 +119,7 @@
 - head to sleep 
 - feinren and gilbert compare books 
 - elvish section of feinrens book are more personal notes, annotations and such, some is warlock just purely insulting different things, sometimes talking about something elvish in particular, ie talking about elvish person
-- day wakes 
+###### day wakes
 - go to breakfast, have brought out croissants as well
 - butler says we can go throughout the city today, but that a tailor will come around to start tailoring and start our etiquette and dance lessons
 - rahkoriin tries berries, likes them

@@ -1,0 +1,61 @@
+##### Gnome Depot
+- Rahkoriin buys raw materials
+- tarlo asks for weekly specials
+- ra bought grappling hook
+- another perception check, see nothing
+- return to the castle around midday/ early afternoon
+- have lunch, beautiful mystery meat sandwiches 
+- TIME FOR LESSONS
+
+- enter beautiful ballroom with stained glass windows, seating area on the  left but majority of area free for dancing
+- in middle is very tall seemingly half elf in the most elegant suit weve ever seen
+- tarlo pulls hood up to hide as elf is judging us 
+- my name is dale, ill teach you how to dance, please partner up
+- advises tarlo not to dance in armour
+- feinren makes joke about battle being a dance
+- spellcasters partner up leaving rahkoriin and tarlo
+- dale breaks them up due to height difference
+- feinren and tarlo, gilbert and rahkoriin
+- says tarlo will wear stilts on the day (but dance?)
+- says we will be doing the dance of the capital (jokes before about what dance) (eastern jiives of the sky tribes)
+- essentially a waltz, however every 8 beats the time signature changes and it goes into a saltza
+- dale points out feinren as one closest in height to him
+- feinren absorbs the movements quite well (21 with portent intelligence) and dances very well (20 without potent acrobatics)
+- rahkoriin and gil practice, partners swap
+- feinren falters while dancing with rah and dale blames rah, what did you do to this man!? He was beautiful
+- Tells tarlo she cant dance, *to gilbert* dont laught, you cant dance either
+- dale, my time with you is done, feinren and rah are passable (practice tonight and tomorrow night), tarlo and gilbert are a lost cause
+- feinren waves as dale leaves
+- return to our rooms, butlers calls us for dinner, return to rooms
+- gilbert and feinren read books, ensuing luck rolls, 9 and 17. Gilbert reads few references to different spiral avatars, spiral has had a long line of especially powerful warlocks, but has never been more than one powerful warlock, the power seems to gravitate to one person over time (for each new warlock)
+- gilberts situation is very similar to all other warlocks, find themselves attracted to items of the spiral and blacking out, not realising they had done attrocities like slaughtering villages
+- the being of the spiral tends to reward things that are more negative, ie negatively impacting somones understanding of reality, massacres
+- isnt explicitly evil, rewards other things but mainly those
+- unaligned
+	- interesting things
+	- seems lot of the unaligned religions were founders of what is now considered the accepted religions, they were the more powerful religons before and during large sections of the war
+	- written by those who were unaligned
+	- references betrayal done to the unaligned religions
+	- betrayal was centered around them harvesting the power of the unaligned religions
+**wake up**
+- NO WE DONT BITCH
+- in the middle of the night something happens, fe takes 13 damages, ra 14 damage, gi 10 dmg, ta 5dmg
+- each of see above us a small figure that appears to be a humanoid crow, claws holding down our arms and stabbed us in the shoulder with a knife
+- bird is shrouded in dark cloak, beak is black 
+- feinren uses misty step to escape and leave room
+- rahkoriin uses fire breathe and does 9 damage
+- gilbert access a twisted rotted burning inside of his chest, a mix match of eyes and ears and teeth and teeth and teeth and teeth and teeth emerge, gil grapples the kenku, teeth nashing and biting the flesh
+- tarlo kicks the kenku, bring out sword and slashes across the kenku twicxe
+- kenku stabs tarlo as she dashes away
+- in response tarlo immolates the fucker
+- gives feinren 2 temp hp
+- kenku rushes at feinren and attacks, misses thanks to portent, goes to attack again , misses thanks to shield, misses a third time thanks to shield
+- kenku does 12 damage to rahkoriin, 12 damage again
+- kenku tries to escape the maw of death, fails
+- feinren misty steps away from kenku, does 12 damage in firebolt, kenku screams, sound doesnt seem like its meant to be coming from its mouth, says it in almost voice of a goblin
+- rahkoriin crit hits kenku, cleaving it in two
+- walks out, shish ki babs kenku on his left
+- gilbert uses hum of the spiral on kenku, then stabs twice with dagger, the kenku cries in a voice that sounds stolen, not quite belonging to it, while the maw in gilberts chest finishes the kenku off, a huge mouth slicing off a chunk of the kenku skull
+- guards rush around the corner, are you ok what happened, notice dead assassins on the ground, this has never happened 
+- says both feinren and rahkoriin must rush to the royal healer, both in very bad condition, tarlo and gilbert also need attention but less so
+- guards stop and talk to gilbert and tarlo
