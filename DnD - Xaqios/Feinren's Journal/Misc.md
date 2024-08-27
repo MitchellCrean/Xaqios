@@ -1,0 +1,6 @@
+- 2 eyes drawn in the book for testing range and longevity
+	- note that eyes only worked in Granth, and stopped working after Zora died
+	- eyes drawn outside of Granth would glow within Granth
+- Copied notes from session 7 that were taken from Ahkon's mansion
+- Gold + eldritch blast = platinum?????!!!!
+- 
