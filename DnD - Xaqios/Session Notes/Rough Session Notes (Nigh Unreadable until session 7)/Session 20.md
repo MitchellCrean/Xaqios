@@ -1,0 +1,125 @@
+##### He could of sworn there was a window
+
+- Guards ask Gilbert and Tarlo what happened
+- Gilbert describes what happened
+- describes how they sorta sounded different from their bodies, more goblin like
+- guard says the assassins are kenkus, who mimic sounds, after inspecting the corpse
+- moves them to different rooms and organises cleaner to clean room
+- tarlo and gilbert try to fake being hurt, 4 - tarlo, nat 1 - gilbert
+- guard is not fooled, doesnt think they are that hurt, but part of him thinks they are
+- gilbert pretends to faint badly, tarlo catches him
+- guard says one of the butlers will escort them to the rooms as gilbert continues to be 'faint'
+- Gilbert goes to collect his book and feinrens, but doesnt see feinrens (nooooooooooooooooo)
+- **Cut back to feinren and rahkoriin**
+- Rahkoriin is stumbling along hallway he is being guided down while bleeding, eventually reaches medical place, is completely white, with a few small beds for people to lay down on, Feinren follows, a lot less hurt but still bleeding
+- Tall human walks in wearing robes, complains about incompetent guards and works over us and casts a spell or two
+- short rests and long rests are had
+
+- knocks on tarlo and gilberts door, tarlo asks to be given platter of breakfast and follows along to go with gilbert to medical ward
+- Feinrens eating food, Rah is passed out
+- Feinren complains about incompetency of guards and asks about book
+- Rahkoriin eventually wakes upz
+- talk about crystal storing power and such and dealer
+- tarlo talks about what dealer said
+- Gilbert asks gabriel about the power being sealed, gabriel just starts rambling about betrayl and gets quite vague
+- Perception checks, hear footsteps approaching the room, change topic, butler comes in coughs and says his glad their finally awake (says so in a tone), the king has requested an audience with you, if you are all ready so you can relay all your reviews
+
+##### Nobody expects the board review
+
+- king sits with concerned look in his face for first time we remember
+- walk into room following the butler, stand in front of the kings throne
+- 'im deeply sorry for what happened to you last night, dont know how they got in but do know who they are'
+- 'dont suppose any of you have heard of an organisation called the shadow walkers'
+- feinren recognises it as something he might of heard his family mention once or twice, organisation that follows the dark and they are assassins
+- 'followers of the daaarrrrkkk question mark' - f
+- 'correct, weakened a bit in recent years but have existed as long as anyone can remember, no one can say how long they have existed for'
+- essentially the greatest group of assassins one can hire, they are very expensive
+- never managed to eliminate them as the dark is a good counter to the eye
+- we dont know who hired them, but it is likely that they will strike again at some point
+- important person must of hired them and given them a lot of money
+- be on high alert for next few days, and be careful at the ball, likely someone there would of hired them
+- 'we apologise again for this lack of security'
+- G - 'one might ask how they found our rooms, winding coridoors and to stirke all four of us at once'
+- theres a chance that in town they used something to track us
+- R - are you sure none of your guards are a part of the group
+- k - as far as im aware, and i have done some investigating, none of my guards were involved
+- k - i trust these people with me life on a daily basis
+- f - should we change rooms since they know our old rooms
+- g - will these new rooms be 'Identical'
+- k - some might find them a bit more spacious then before
+- will take your stuff to your new room, as he says this whispers to someone on his left and they move away
+- t - do you think this might happen again
+- k  - each one of you will have guard stationed outside your door at night
+- k - likely wont attack you in your rooms again, but be aware
+
+- butler guides us to our new rooms, everything that was in our rooms previously has been shifted to our new rooms
+- gilberts room is same distance away, room feels a tiny bit smaller, could be paranoia but who knows
+- feinren looks for his book, it is in the exact same satchel as before, hasnt been moved, but that doesnt mean it hasnt been seen
+- gilbert uses rope to measure new room, is 1cm smaller than his old room
+
+tiiiimmmmmmeeeee skiiiiippppppp 
+
+- skip over next few days, have one or two more dance and etiquette lessons 
+- gilbert measure and everyone elses room is together 1 cm bigger
+- ball will be structured with mingling and food serving, will be social hierachy of where we sit , there will be a little ceremony before we sit down where the king announces that the ball will be in our honour, and we will be paraded a bit
+- dancing will begin, most people will dance, especially younger people, most optimal time to sneak away will be during dancing, be seen dancing for a bit and then move away
+
+- back in briefing with lieutenant talking about how we believe night will run, as above, king wont be able to help you aside from brief conversation after he introduces you
+- the less you talk to him, the less suspicious, the better
+- get our dresses and suits, tarlos has stilts - acrobatics check - 9
+- gilbert - am i doing not being seen at all, or am i joining the ball then disappearing after dance
+- since assassins were aware of you, might be best for you to be seen first and then slip away
+- put weapons, feinren and rahkoriins potions bag of holding and give it to rahkoriin
+- plan away, rahkoriin will listen in while gilbert will snoop around invisible
+- lieutenant, do your best, do not fail, and ill see you when you get back
+- get in carriage and within 20 minutes we are at a massive glorious, fortress looking building
+- made largely of stone with some wood here and there, is smaller than the kings castle but is nothing to sneer out, is beautiful and has towers reaching up to the sky
+- polished wood doors almost twice our size, ushered through by yellers
+- taken into huge glorious ballroom, with balconies and fuck we got 2 nat 1s on perception check
+- gilbert and feinren overwhelmed by crowd, cant really take anything in, tarlo only sees gilbert and feinren staring around blankly, rahkoriin notices place is quite full of people, sees one door with wait staff and such walking in and out of the door, there a few guards around the place 
+- feinren asks where bathroom is, left right left to get to bathroom
+- we are shown to our seats
+- tarlo ponders child labour for workers to disguise as
+- sees occasional half elf on wait staff and some short people, but none short enough tarlo can really impersonate
+- there is a section on room raised a bit, king there, few other people of high asteem, to the left of their table (our right), so there are 3 tables on this raised platform
+- we get brought up to sit on the table on the left
+- gilbert counts doors (the number keeps changing(gabriel has been fucking with him)), feinren keeps head down and scratches wood, looks up slowly and looks around the room
+- Tarlo notices krat (eyeball dude), sees he has intricate tatoos surrounding his eyes, long hair, black and greeny crystal that looks like it has what would be a normal eye there, and his eyelids are gone
+- Everything starts to quiet down and everyone is sitting, king stands up
+- hello all, it is lovely to be at another ball with you all, - thanks krat for hosting, krat bows, but looks sour when he sits back down (king didnt say full name) - now we have some very specially guests today who we are here celebrate the heroes of granth - we stand and bow to the king and then walk over - id like to introduce our heroes, Feinren tanau ----
+- feinren notices sitting near a table where krat is sitting, an older figure and feinren recognises his shoulder length, ashen with embers of black shooting through it, and feinren feels dread as he glares at him, feinren averts eyes, feinren sees family sitting next to him with parents, look at him with aversion and pity ---
+- the ever brilliant Gilbert Harmon, the great and powerful Rahkoriin who stands strong and tall (flicks glamorous hair), and Tarlo of granth, she may be short, but she is very strong
+- everybody give a round of applause to our heroes
+- other parties do insight to see if they notice feinrens uncomfortableness, a series of nat ones says no
+- grandfather slowly claps
+- parents clap with pride in eyes
+- rah sauvely says something
+- then we are taken back to our seats and the king turns the ball over to kratt
+- thank you, youR Majesty, and thank you to our heroes, your activities deserve to be recognised, and dinner will be served shortly
+- individual server goes to each person and lays down plate of food infront of them
+- see grandfather bickering with grandparents, they seem to be asking him not to do something
+- feinrens moody
+- talk about grandfather and family a bit, bickering and such and being kicked out
+- after dessert is finished krat stand up and says, let the dancing commence
+- takes hand of woman sitting next to him and starts to dance, live band starts playing
+- feinren and grandfather quibble 
+- grandfather whispers into feinrens ear 'listen here boy, you are going to come with me and we are going to discuss what you are doing hear'
+- you four may be the kings guests but you are not mine
+- feinren - no its fine, the talk has been overdue
+- grand pappy tries to grab me by the hand but i move it out of the way
+- door where bathroom was pointed out, instead of first right leads down corridor and into study
+- now what are you doing hear
+- you are well aware that you are supposed to stay away from the capitol, away from the family
+- i thought you might of moved
+- if you do not leave this city, i will kill you
+- grand pap uses produce flame to try and intimidate, feinren casts counterspell, 'happens with age'
+- feinren and grand pap have big arguement
+- after huge back and forth arguement
+- 
+- how important was that scroll really
+- the family is dying, its withering away
+- and why do you think thats happening, because the of the failures of you, wasting the the bloodline
+- fuck you 
+- i got banished twice really, first when I was sent off to control my powers, then when i returned. you knew i still had trouble controlling my powers, what did you think would happen when you took me into your office for the thousandth time. Im glad youve banished me, ive learnt more on my own then you could have taught me if you even tried, see you around 
+- feinren throws up in toilet, hands shaking
+- 

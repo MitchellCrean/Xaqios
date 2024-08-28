@@ -3,4 +3,4 @@
 	- eyes drawn outside of Granth would glow within Granth
 - Copied notes from session 7 that were taken from Ahkon's mansion
 - Gold + eldritch blast = platinum?????!!!!
-- 
+- being dead is weird
