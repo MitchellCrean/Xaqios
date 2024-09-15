@@ -1,0 +1,82 @@
+- uhh i forgot to do notes for 10 minutes
+- tarlo performanced into being taller
+- rahkoriin danced and people wanted to dance with him
+- gil still counting doors
+- feinren casts mage armour, looks through study he was in before and then heads back into ballroom
+- see rah dancing and trying to listen in, gil counting and tarlo mingling
+- tarlo hears some stuff about how the king overthrew the mati family and how the castle is nearly as old as the kings castle
+- feinren and rahkoriin circle around people trying to eavesdrop
+- tarlo checks that gilbert isnt having a mental breakdown
+- gil and tarlo have lengthy conversation about doors, windows and archways as tarlo attempts to calm gilbert down, and gabriel .... doesn't
+- man who was sitting near to the king comes over and asks how the mission is going
+- gilbert, great maybe you can settle a quarrel, how many doors are in this room
+- four doors
+- what are your classifications of a door
+- conversation ensues until tarlo breaks it up
+- man - the king did threaten to not pay you at all, his words not mine, whisper to gilbert - get your head out your ass
+- rah and feinren see krat walking onto the dance floor with a young girl, see them chatting a bit
+- rah and fei waltz towards krat
+- feinren can only hear the murmur of his voice, rah hears krat badmouthing the king, and gleans that the person he is dancing is a daughter or a relative
+- 'the king is trying to screw over their plans' thinks king is responsible for plans over last week
+- vague reference to moving up the plans, and has talked to the elves and the dwarves
+- see guys sculling wine at mati table
+- fei and rah split off
+- rah and gil meet up in the bathroom
+- in a stall together, halfway trhough someone knocks - how long are you gonna be?
+- leave stall at same time, 3 or so people outside who look at them judgingly
+- gil - you should not go in there, phoo
+- 7s the limit for feinren
+- i was of organsiing th guarding of this dungeon, theres something stong down there, i dont know how but someone came in here
+- best case banishment, worst case something else
+- been there *sculls drink* done that *sculls another drink*
+- if you need me im at gnome depot
+- thats a cool job, i like that job
+- feinren casts suggestion - 'what is the thing you can tell me that would hurt your family the most' - reworded - 'whats your familys most important secret'
+- my grandfather is working with a family of elves and dwarves, and i dont know this for certain, but i think they are helping them break into the main continent
+- feinren talks about verens family - unlicky
+- when i was a kid your grandfather said we were being too loud and burnt my wooden sword
+- your grandfather has been talking to my family - birds of a feather flock together
+- dude falls asleep
+- tarlo has been making small talk to people
+- gilbert opens a bathroom door for someone and then immediately turns invisible before they reach him
+- mati family kicks the drinker awake, drinker runs off to the bathroom
+- krat and king having a very tense conversation, very formal, dick measuring contest
+- feinren brings another glass over, tarlo pushes plate of food over with a look
+- tarlo finds secluded corner and casts disguise self to make herself look like child servant
+- tarlo walks up stairs, hears voices on her left, tries to listen in
+- hears one person freaking out, other trying to calm them down
+- talking about right and wrong, if they go through with this a lot of people will die, theyre savages
+- promised that families would be reinstalled
+- grandad is insane 
+- arguement comes to close - i cant go through with this - and tarlo hears a scream, and a thud
+- tarlo goes to another room to hide and wait for person to come out, - fuck why would he do that
+- tarlo goes into a room and sees the young man feinren was talking to bleeding out, essentially dead, neck slashed and stabbed in the chest a few times
+- tarlo is in a study, and in mans hands some bundled up notes
+- tarlo pats him on the shoulder - im sorry this happened to you
+- coughs up blood on himself, and gurgles 'the king, takes these, stop th.. (blood clot in the throats bursts), and he dies as his grip on the notes loosen'
+- tarlo takes the notes, some edges and corners have blood on them, detailed record of their plans helping the puppetless string take over the main continent, including plans with elves and dwarves
+- one or two references to how the unification of the continent has failed, and there are some active records of military things
+- tarlo looks at notes on desk, more communication with other families on plans to bring down capital/main continent
+- plans with other families of the eye talking about 'the future they want to make'
+- tarlo grabs what she can carry and hide, enough to damn the families
+- also grabs note that is dodgy but not damning, dips in victims blood and stuffs in his hand
+- looks for secret passageway
+- doesnt find anything
+- he casts fireball (for the third time)
+- gilbert (invisible) walks down hallway
+- goes down staircase (which goes down quite a way) (goes down 3 levels, each one has a door)
+- gilbert goes to the first door (highest level)
+- military and armoury barracks
+- gilbert leaves fairly quickly, heads down one floor
+- appears to be poorly lit, rooms are choc-ful of random stuff, some large pantries, (huge amounts, enough to live for years)
+- gilbert leaves and moves down to the lowest floor
+- dark and damp, uneasy smell in the air
+- appears that instead of rooms there are bars (individuals in some corners) one or two rooms appear to be torture chambers on not jail cells
+- one of them is soaked red 
+- gilbert finds closest thing he can to a records room, has binders and notebooks detailing prisoners
+- mostly enemies of the family, quite a few references to them using people of the flesh for torture for the 'best' results
+- mostly human, not a lot of people in there currently, maybe 6/8 cells are occupied (one a cell), 4 human, one goblin, one orc
+- gilbert takes the papers - perception check
+- "whats your ac"
+- gilbert feels soid thwack to back of head, and are knocked unconscious
+- feinren eats plate of food and feels a bit less drunk
