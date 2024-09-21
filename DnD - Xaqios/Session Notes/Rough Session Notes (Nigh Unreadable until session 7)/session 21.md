@@ -7,6 +7,7 @@
 - tarlo hears some stuff about how the king overthrew the mati family and how the castle is nearly as old as the kings castle
 - feinren and rahkoriin circle around people trying to eavesdrop
 - tarlo checks that gilbert isnt having a mental breakdown
+
 - gil and tarlo have lengthy conversation about doors, windows and archways as tarlo attempts to calm gilbert down, and gabriel .... doesn't
 - man who was sitting near to the king comes over and asks how the mission is going
 - gilbert, great maybe you can settle a quarrel, how many doors are in this room
@@ -14,6 +15,7 @@
 - what are your classifications of a door
 - conversation ensues until tarlo breaks it up
 - man - the king did threaten to not pay you at all, his words not mine, whisper to gilbert - get your head out your ass
+
 - rah and feinren see krat walking onto the dance floor with a young girl, see them chatting a bit
 - rah and fei waltz towards krat
 - feinren can only hear the murmur of his voice, rah hears krat badmouthing the king, and gleans that the person he is dancing is a daughter or a relative
@@ -21,10 +23,12 @@
 - vague reference to moving up the plans, and has talked to the elves and the dwarves
 - see guys sculling wine at mati table
 - fei and rah split off
+
 - rah and gil meet up in the bathroom
 - in a stall together, halfway trhough someone knocks - how long are you gonna be?
 - leave stall at same time, 3 or so people outside who look at them judgingly
 - gil - you should not go in there, phoo
+
 - 7s the limit for feinren
 - i was of organsiing th guarding of this dungeon, theres something stong down there, i dont know how but someone came in here
 - best case banishment, worst case something else
@@ -33,15 +37,17 @@
 - thats a cool job, i like that job
 - feinren casts suggestion - 'what is the thing you can tell me that would hurt your family the most' - reworded - 'whats your familys most important secret'
 - my grandfather is working with a family of elves and dwarves, and i dont know this for certain, but i think they are helping them break into the main continent
-- feinren talks about verens family - unlicky
+- feinren talks about verens family - unlucky
 - when i was a kid your grandfather said we were being too loud and burnt my wooden sword
 - your grandfather has been talking to my family - birds of a feather flock together
 - dude falls asleep
+
 - tarlo has been making small talk to people
 - gilbert opens a bathroom door for someone and then immediately turns invisible before they reach him
 - mati family kicks the drinker awake, drinker runs off to the bathroom
 - krat and king having a very tense conversation, very formal, dick measuring contest
 - feinren brings another glass over, tarlo pushes plate of food over with a look
+
 - tarlo finds secluded corner and casts disguise self to make herself look like child servant
 - tarlo walks up stairs, hears voices on her left, tries to listen in
 - hears one person freaking out, other trying to calm them down
@@ -62,7 +68,9 @@
 - also grabs note that is dodgy but not damning, dips in victims blood and stuffs in his hand
 - looks for secret passageway
 - doesnt find anything
+
 - he casts fireball (for the third time)
+
 - gilbert (invisible) walks down hallway
 - goes down staircase (which goes down quite a way) (goes down 3 levels, each one has a door)
 - gilbert goes to the first door (highest level)
