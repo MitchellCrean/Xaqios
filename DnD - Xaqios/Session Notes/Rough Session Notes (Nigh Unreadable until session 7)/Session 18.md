@@ -37,7 +37,7 @@
 - cover isnt obvious but still dont show it (i think thats what isaac said), cover appears to be in dwarvish
 - this book contains quite a bit of history about the war, was written by a warlock of the dark, a powerful head of the guild of the assassins
 - dont suppose theres an author sketch on the back
-- tattoos glow, no there would not be (giggles, likes feinrens joke)
+- eye tattoos glow, no there would not be (giggles, likes feinrens joke)
 - walk into restricted section with him, air grows sold and he walks through it, he picks out book, walks back
 - feinren takes book, says he will give it back to librarian when he is done
 - lib - try not to take it out of the grounds, has location tracker
