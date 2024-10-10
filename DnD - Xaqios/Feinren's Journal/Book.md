@@ -8,5 +8,5 @@
 
 
 - interesting, from what happened in the chamber and what Gilbert book says, it would be logical to conclude that the power harvested was put into the crystals, would explain why Rahkoriin didnt get a power up and seems to imply that the Puppetless string shouldnt benefit from us destroying crystals
-- 
+- "concerned about gabriel and gilbert since they were from this time period, and were of the religions which had their power stolen"
 	
